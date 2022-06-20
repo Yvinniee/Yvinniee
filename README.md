@@ -4,4 +4,5 @@
 - 📫 How to reach me 
 - Go to https://web.facebook.com/RawrSamPoItuh!!!
 - New to github^^
-Looking foreward to know this community!!
+Looking forward to know this community!!
+^^Call me sam!!
